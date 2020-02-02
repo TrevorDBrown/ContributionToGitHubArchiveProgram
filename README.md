@@ -18,7 +18,8 @@ I don't want to drone on too much more about myself, nor can I really even begin
 
 God bless. 
 
-- Trevor Brown
+Trevor Brown
+
 "To the makers of code – all worlds, all times"
 
 ASCII
